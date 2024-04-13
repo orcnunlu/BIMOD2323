@@ -1,3 +1,5 @@
+https://bimodguncelkonular.netlify.app
+
 FIRAT ÜNİVERSİTESİ YAZILIM MÜHENDİSLİĞİ GÜNCEL KONULAR DERSİ DÖNEM PROJESİ İÇİN AÇILMIŞTIR.
 
 PROJE EKİP ÜYELERİ;
